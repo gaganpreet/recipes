@@ -1,4 +1,4 @@
-* 200 gms chick peas, soaked overnight
+* 200 gms chick peas, soaked overnight (~8 hrs)
 
 ## Pressure cooker mix (for part 1)
 * 1 cinnamon stick
@@ -37,7 +37,7 @@
 ### Part 1 
 * Add chickpeas to pressure cooker, top up with enough water to just cover them (about 0.5 cm over the edge)
 * Add the pressure cooker mix (cinnamon stick, cloves, black cardamom, tea bags, pomegranate skin, salt, baking soda)
-* Pressure cook for .... minutes
+* Pressure cook for 18 minutes
 * Let the pressure release naturally
 
 ### Part 2
