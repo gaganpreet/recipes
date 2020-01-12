@@ -57,7 +57,7 @@
 * Add ginger garlic paste, and tomato puree
 * Cook until oil starts to seperate
 * When oil has seperated, add some water and turn flame to lowest
-* Once water is boiling, add the sliced chilies, sliced ginger and kasuri methi
+* Once water is boiling, add the chole, sliced chilies, sliced ginger and kasuri methi
 * Cook for 15-20 minutes, on very low flame to let the flavours intermingle
 
 Source: http://www.bharatzkitchen.com/recipe/perfect-punjabi-choley-masala-chana-masala/
