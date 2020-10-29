@@ -4,16 +4,16 @@ For 6 servings
 
 ## Ingredients
 
-5 cups Basic Homemade Meat Broth, OR 1 cup canned beef broth diluted with 4 cups water
-2 tablespoons diced pancetta or prosciutto
-3 tablespoons butter
-2 tablespoons vegetable oil
-2 tablespoons onion chopped very fine
-2 cups Arborio or other imported Italian risotto rice
-⅓ teaspoon powdered saffron OR ½ teaspoon chopped saffron strands dissolved in 1 cup hot broth or water
-Black pepper, ground fresh from the mill
-⅓ cup freshly grated parmigiano-reggiano cheese, plus additional cheese at the table
-Salt, if required
+* 5 cups Basic Homemade Meat Broth, OR 1 cup canned beef broth diluted with 4 cups water
+* 2 tablespoons diced pancetta or prosciutto
+* 3 tablespoons butter
+* 2 tablespoons vegetable oil
+* 2 tablespoons onion chopped very fine
+* 2 cups Arborio or other imported Italian risotto rice
+* ⅓ teaspoon powdered saffron OR ½ teaspoon chopped saffron strands dissolved in 1 cup hot broth or water
+* Black pepper, ground fresh from the mill
+* ⅓ cup freshly grated parmigiano-reggiano cheese, plus additional cheese at the table
+* Salt, if required
 
 ## Instructions
 
