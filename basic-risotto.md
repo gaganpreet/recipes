@@ -1,3 +1,5 @@
+From Essentials of Classic Italian Cooking
+
 THIS BASIC white risotto is the simplest way to prepare the dish, and for many, the finest. Good as it is, it can be even better when blanketed by shaved white truffles.
 
 For 6 servings
