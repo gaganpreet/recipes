@@ -1,5 +1,6 @@
 * [basic risotto](basic-risotto.md)
 * [chole](chole.md)
+* [chole v2](chole-v2.md)
 * [garam masala](garam-masala.md)
 * [kadhi](kadhi.md)
 * [kheer](kheer.md)
