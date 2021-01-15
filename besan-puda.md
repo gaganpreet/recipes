@@ -1,16 +1,16 @@
 ### Ingredients
 
-1.5 cups besan
-2 chopped green chilies
-1/2 chopped onion
-bunch chopped coriander
-small piece of chopped ginger
-2 tsp ajwain (bishop's weed)
-1 tsp red chili powder
-1/4 tsp turmeric
-1/2 tsp cumin powder
+* 1.5 cups besan
+* 2 chopped green chilies
+* 1/2 chopped onion
+* bunch chopped coriander
+* small piece of chopped ginger
+* 2 tsp ajwain (bishop's weed)
+* 1 tsp red chili powder
+* 1/4 tsp turmeric
+* 1/2 tsp cumin powder
 
-1.5 cups water
+* 1.5 cups water
 
 # Directions
 
