@@ -1,6 +1,6 @@
 ### Ingredients
 
-* 1.5 cups besan
+* 1.5 cups (sifted) besan
 * 2 chopped green chilies
 * 1/2 chopped onion
 * bunch chopped coriander
@@ -20,4 +20,3 @@
 * Once both sides are browned, take off the heat
 * Repeat the process to cook the rest
 * Serve with chutney or ketchup
-
