@@ -4,16 +4,16 @@
 
 From The Food of Sichuan
 
-# 10–12 dried shiitake mushrooms (9 oz/250g after soaking)
-# ⅔ cup (75g) potato starch
-# 8 dried chiles
-# 6¼ oz (175g) long green Turkish peppers
-# Cooking oil, for deep-frying
-# 1 tsp whole Sichuan pepper
-# 1½ tbsp Sichuan chile bean paste
-# 3 garlic cloves, peeled and sliced
-# An equivalent amount of ginger, peeled and sliced
-# 1 tsp sesame oil
+* 10–12 dried shiitake mushrooms (9 oz/250g after soaking)
+* ⅔ cup (75g) potato starch
+* 8 dried chiles
+* 6¼ oz (175g) long green Turkish peppers
+* Cooking oil, for deep-frying
+* 1 tsp whole Sichuan pepper
+* 1½ tbsp Sichuan chile bean paste
+* 3 garlic cloves, peeled and sliced
+* An equivalent amount of ginger, peeled and sliced
+* 1 tsp sesame oil
 
 ### For the sauce
 
