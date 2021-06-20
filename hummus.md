@@ -74,5 +74,5 @@
 
 A combination of two recipes:
 
-* [https://www.masterclass.com/articles/yotam-ottolenghis-hummus-recipe#yotam-ottolenghis-homemade-hummus-recipe](Yotam Ottolenghi’s Homemade Hummus Recipe)
-* [https://www.seriouseats.com/israeli-style-extra-smooth-hummus-recipe](The Best Smooth Hummus Recipe)
+* [Yotam Ottolenghi’s Homemade Hummus Recipe](https://www.masterclass.com/articles/yotam-ottolenghis-hummus-recipe#yotam-ottolenghis-homemade-hummus-recipe)
+* [The Best Smooth Hummus Recipe](https://www.seriouseats.com/israeli-style-extra-smooth-hummus-recipe)
