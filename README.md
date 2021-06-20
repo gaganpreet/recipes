@@ -5,6 +5,7 @@
 * [chole v2](chole-v2.md)
 * [ganbian shanyu](ganbian-shanyu.md)
 * [garam masala](garam-masala.md)
+* [hummus](hummus.md)
 * [kadhi](kadhi.md)
 * [kheer](kheer.md)
 * [mac and cheese](mac-and-cheese.md)
