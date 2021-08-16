@@ -8,6 +8,7 @@
 * [hummus](hummus.md)
 * [kadhi](kadhi.md)
 * [kheer](kheer.md)
+* [lemon ricotta cupcakes](lemon-ricotta-cupcakes.md)
 * [mac and cheese](mac-and-cheese.md)
 * [malai kofta](malai-kofta.md)
 * [palak paneer](palak-paneer.md)
