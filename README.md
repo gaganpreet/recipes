@@ -15,5 +15,6 @@
 * [pancetta risotto](pancetta-risotto.md)
 * [pastel de nata](pastel-de-nata.md)
 * [pork knuckle thai braised](pork-knuckle-thai-braised.md)
+* [quail curry](quail-curry.md)
 * [risotto zucchini](risotto-zucchini.md)
 * [sichuan braised pork](sichuan-braised-pork.md)
