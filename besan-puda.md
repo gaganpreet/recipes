@@ -9,14 +9,16 @@
 * 1 tsp red chili powder
 * 1/4 tsp turmeric
 * 1/2 tsp cumin powder
+* 1 tsp salt
 
 * 1.5 cups water
 
 # Directions
 
-* Mix ingredients and add water till the liquid is runny like batter
-* Heat up oil in a pan and spread the batter with a spoon
-* Wait until the bottom is cooked and flip and add more oil to the sides
-* Once both sides are browned, take off the heat
+* Sift besan and whisk with water until a smooth mixture is formed
+* Add rest of the ingredients and mix well
+* Heat up oil in a pan and spread the batter as thin as possible
+* Wait until the bottom is cooked and brown. Flip and add more oil to the sides
+* Once both sides are browned, take off the heat and put on a plate
 * Repeat the process to cook the rest
 * Serve with chutney or ketchup
