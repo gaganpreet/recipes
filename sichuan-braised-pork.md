@@ -19,6 +19,8 @@ Cook one day in advance, put away to let the flavours develop and reheat and eat
 * About 3⁄4 tsp salt 
 * 3 tbsp brown sugar or rock sugar 
 * 1⁄2 star anise 
+* 1 black cardamom
+* 1 tsp sichuan peppercorns
 
 
 ### About
