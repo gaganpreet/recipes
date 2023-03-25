@@ -32,8 +32,8 @@ https://www.youtube.com/watch?v=TFITgHJKyPg
 - 100 g broken wheat
 
 ### Optional Add-ons:
- -1/8 cup dried/fresh rose petals
- -1/8 tsp meetha attar
+ - 1/8 cup dried/fresh rose petals
+ - 1/8 tsp meetha attar
 
 ### Garnish:
  - Mint leaves
