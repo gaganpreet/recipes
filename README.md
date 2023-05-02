@@ -21,3 +21,4 @@
 * [risotto zucchini](risotto-zucchini.md)
 * [roast lamb chops](roast-lamb-chops.md)
 * [sichuan braised pork](sichuan-braised-pork.md)
+* [tempeh curry](tempeh-curry.md)
