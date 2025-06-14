@@ -12,8 +12,8 @@
 ## Instructions
 
 * Boil spinach with about half cup water, blend with gram flour
-* Saute onions
-* Add tomato paste and reduce
+* Heat oil in a pan and saute onions till brown
+* Add tomato ginger chili paste and reduce
 * Add blended spinach leaves and salt to taste and cover for 5-7 minutes on low heat
 * Add paneer pieces and cream, then turn off heat after 1 minute
 
