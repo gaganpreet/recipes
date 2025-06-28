@@ -6,6 +6,7 @@
 * [chole v2](chole-v2.md)
 * [ganbian shanyu](ganbian-shanyu.md)
 * [garam masala](garam-masala.md)
+* [ginger beer](ginger-beer.md)
 * [haleem](haleem.md)
 * [hummus](hummus.md)
 * [kadhi](kadhi.md)
